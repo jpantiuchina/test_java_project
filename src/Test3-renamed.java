@@ -1,2 +1,0 @@
-MNBJHBJHBCNJQ
-d  stop
